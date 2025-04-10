@@ -1,2 +1,2 @@
 
-Welcome to the kitchen sink! Updates will be as regular as possible.  
+Welcome to vihuela! Updates will be as regular as possible.  
